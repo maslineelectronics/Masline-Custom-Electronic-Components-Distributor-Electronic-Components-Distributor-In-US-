@@ -27,7 +27,7 @@ Masline Electronics operates as a leading **distributor in the US**, supporting 
 
 ## Why Choose Masline Electronics?
 
-- Over 70 years of industry experience
+- Over 90 years of industry experience
 - Strong focus on customer service and technical support
 - Custom sourcing and kitting solutions
 - ISO-certified quality management processes
